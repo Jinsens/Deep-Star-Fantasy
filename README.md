@@ -1,2 +1,1 @@
-# Chaseing-Deep-Starry-Fantasy
-Chaseing Deep Starry Fantasy
+# 深邃星空幻想-Deep Star Fantasy
